@@ -1,0 +1,1 @@
+# smartandeazy.com
